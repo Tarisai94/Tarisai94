@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Tarisai94
-- 👀 I’m interested in research, data analysis and interpretation. 
+- 👀 I’m interested in research, data analysis and interpretation, academic writing like dissertations and research papers, Msc research and CV writing. 
 - 🌱 I’m currently learning at alx 
 - 💞️ I’m looking to collaborate on data analysis and interpretation
 - 📫 How to reach me. You can get in touch with me on  +263713656427 or on sanyangatarisai7@gmail.com
